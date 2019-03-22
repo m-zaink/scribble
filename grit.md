@@ -10,7 +10,7 @@ Your eyes droop and your soul sags.
 And then something comes along.  
 A lone lantern in the dreary night.    
 A humble angel in the perilous hell.    
-It's your inner calling. Your dearthy grit. You commitment to make it big.  
+It's your inner calling. Your dearthy grit. Your commitment to make it big.  
 Your mind takes a tiny jolt.  
 And then starts a carburator.  
 Like a old dusty car that creaks.  
